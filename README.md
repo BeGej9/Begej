@@ -11,7 +11,7 @@ spacevinnamxx
 ⚡ Fun fact I am funny
 
 Connect with me:
-https://www.instagram.com/begej.99/ https://discord.gg/Qc8D9Jajtm
+😎 https://discord.gg/Qc8D9Jajtm
 
 Languages and Tools:
 
